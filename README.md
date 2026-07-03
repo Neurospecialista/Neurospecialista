@@ -5,5 +5,6 @@
 
 
  <img width="2048" height="74" alt="image" src="https://github.com/user-attachments/assets/e9cba2ed-2995-4d34-8885-f0c1cc304961" />
- *PEOPLE ON PONYTOWN COPY MY SKINS. IF YOU SEE ANYONE WITH MY OWN SKIN, THAT IS NOT MY. MY GITHUB AND STRAWPAGE ARE LINKED TO THIS ONLY.*
+ 𝘗𝘌𝘖𝘗𝘓𝘌 𝘖𝘕 𝘗𝘖𝘕𝘠𝘛𝘖𝘞𝘕 𝘊𝘖𝘗𝘠 𝘔𝘠 𝘚𝘒𝘐𝘕𝘚. 𝘐𝘍 𝘠𝘖𝘜 𝘚𝘌𝘌 𝘈𝘕𝘠𝘖𝘕𝘌 𝘞𝘐𝘛𝘏 𝘔𝘠 𝘖𝘞𝘕 𝘚𝘒𝘐𝘕, 𝘛𝘏𝘈𝘛 𝘐𝘚 𝘕𝘖𝘛 𝘔𝘠. 𝘔𝘠 𝘎𝘐𝘛𝘏𝘜𝘉 𝘈𝘕𝘋 𝘚𝘛𝘙𝘈𝘞𝘗𝘈𝘎𝘌 𝘈𝘙𝘌 𝘓𝘐𝘕𝘒𝘌𝘋 𝘛𝘖 𝘛𝘏𝘐𝘚 𝘖𝘕𝘓𝘠.
+ 
  ...if you see a bitch with a bad bob thats not me go the other way.
